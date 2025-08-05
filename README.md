@@ -1,4 +1,26 @@
-## Hi there 👋
+<p align="center">
+<img src="https://file.garden/aDLNm-JCI0dbIn6A/Untitled914_20250715212028.png"/>
+  <div align="center"/>
+
+```There's supposed to be a great view of the stars tonight. Don't you think that's a good omen?```
+
+
+━━━━━━━━━ෆ⁠╹⁠ ✿⁠ ⁠╹⁠ෆ━━━━━━━━━━━━━━━━━━ෆ⁠╹⁠ ✿⁠ ⁠╹⁠ෆ━━━━━━━━━ 
+My main account is [Stellarism](https://github.com/steIIarism)
+<!--
+**MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
 
 <!--
 **httpsarchitect/httpsarchitect** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
