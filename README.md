@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/aDLNm-JCI0dbIn6A/Untitled914_20250715212028.png"/>
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif-6eea199a2094c1e4.gif"/>
   <div align="center"/>
 
 ```There's supposed to be a great view of the stars tonight. Don't you think that's a good omen?```
