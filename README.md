@@ -1,13 +1,19 @@
 <p align="center">
-<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif-6eea199a2094c1e4.gif"/>
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-optimize.gif" width="350" align="left"/> 
   <div align="center"/>
 
-```There's supposed to be a great view of the stars tonight. Don't you think that's a good omen?```
+$$ \huge\color{#9b62a4}{\text{𝕿𝖍𝖊 𝖆𝖗𝖙𝖎𝖘𝖙 𝖜𝖍𝖔 𝖉𝖗𝖆𝖜𝖘 𝖉𝖚𝖓𝖌𝖊𝖔𝖓𝖘. ⊹ ࣪ ˖ ໒.}} $$
 
+$$ \color{#ffdbf5}{\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}} $$
 
-━━━━━━━━━ෆ⁠╹⁠ ✿⁠ ⁠╹⁠ෆ━━━━━━━━━━━━━━━━━━ෆ⁠╹⁠ ✿⁠ ⁠╹⁠ෆ━━━━━━━━━ 
+Navi \ Xyren ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / Any 
 
-My main account is [Stellarism](https://github.com/steIIarism)
+INTP ‎ ‎‎  ‎ ‎ ‎ 18 ‎ ‎ ‎ ‎ ‎ ‎ T-masc
+
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(6).gif" width="100"/>
+
+Gonna edit more another time bc im laaazzyy
+
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
