@@ -23,7 +23,7 @@ $$ \color{#ffdbf5}{\text{ᴅʀʏ ᴛᴇxᴛᴇʀ ᴀɴᴅ ᴀɴ ᴀɴᴛɪ-ꜱ�
 <img src="https://64.media.tumblr.com/288ab858cd1dd32b2f61a20906700207/313453035e66da41-ad/s640x960/b133119a0c3103ae22e1eff69904468c15b6ab92.gifv" width="500"/>
 
 
-<a ref="https://rentry.org/whengodgivesyoufreetime"><img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(6).gif" width="220"/><a/>
+<a href="https://rentry.org/whengodgivesyoufreetime"><img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(6).gif" width="220"/><a/>
 
 
 
